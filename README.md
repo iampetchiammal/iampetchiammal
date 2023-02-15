@@ -11,6 +11,6 @@ Here are some ideas to get you started:
 - 🤔 I’m looking for help with : learning coding 
 - 💬 Ask me about : how to restart your career with career break
 - 📫 How to reach me: instagram:petchi_suryakumar
-- 😄 Pronouns: she/her
+- 😄 Pronouns: she/her.
 - ⚡ Fun fact: creating 1000 program in one day
 -->
